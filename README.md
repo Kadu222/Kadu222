@@ -40,7 +40,5 @@ Contribuir com projetos e trabalho em equipe
 
 📫 Contato
 
-Adicione aqui seus links:
-
 LinkedIn: 
 E-mail: carloseduardoland19@gmail.com
